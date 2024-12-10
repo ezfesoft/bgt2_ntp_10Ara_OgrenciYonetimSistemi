@@ -1,0 +1,1 @@
+# bgt2_ntp_10Ara_OgrenciYonetimSistemi
